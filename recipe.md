@@ -1,0 +1,13 @@
+The following are the steps for creating a chocolate cookie (measurements will differ according to the quantity,therefore,no measurements are mentioned here) :-
+- Take maida in a bowl.
+- Add cocoa powder and powdered sugar to it.Make sure the quantity of them is lesser than the quantity of maida.
+- Mix it well.
+- Now add some salt,butter,baking powder and baking soda to it.Mix it again.
+- Start pouring milk little by little t the mixture.
+- Slowly start kneading the mixture inta a dough.
+- After the kneading of the dough is done, place a cloth over it and let it tot rest for an 25-30 minutes(you can also keep it for an hour).
+- After an 30 minute, make small balls out of the dough and shape the balls into circles or any shape of your wish.
+- You can also poke dry fruits or choco chips into them.
+- Now take a plate and grease it with ghee or butter.You have to follow this step only if you have a microwave.In case you have an oven,you can skip this step.
+- Keep the shaped unbaked cookies on the plate and place it in the microwave.Set the microwave for 3 mins.
+- After 3 mins, take the cookies out of the microwave.Tada your cookies are ready.
